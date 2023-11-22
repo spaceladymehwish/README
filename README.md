@@ -1,2 +1,2 @@
 # README
-nothing
+have a good day
